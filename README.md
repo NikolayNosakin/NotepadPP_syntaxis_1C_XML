@@ -1,0 +1,1 @@
+# NotepadPP_syntaxis_1C_XML
